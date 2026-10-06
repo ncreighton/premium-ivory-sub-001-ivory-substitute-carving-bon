@@ -1,0 +1,2 @@
+# premium-ivory-sub-001-ivory-substitute-carving-bon
+Stop losing track of your custom bone and ivory-substitute carvings in scattered notebooks and sticky notes. Your craft deserves a central lab to manage every project, material, and client order without the chaos.  The Ivory Substitute Carving &amp; Bone Craft Lab transforms Notion into your dedicated workshop manager. It solves the pain of disorganize
